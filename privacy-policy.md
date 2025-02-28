@@ -8,4 +8,4 @@ We respect your privacy and are committed to protecting your personal data. This
 
 **Data Sharing**: We do not share your personal data with third parties except as required by law.
 
-If you have any questions, please contact us at [your-email@example.com].
+If you have any questions, please contact us at nizar.bousabat2000@gmail.com.
